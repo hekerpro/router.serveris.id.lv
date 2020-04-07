@@ -1,1 +1,0 @@
-# router.serveris.id.lv
